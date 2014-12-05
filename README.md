@@ -4,7 +4,7 @@
 
 Louis Mathé
 ===========
-  Audit and Chartered Accounting Masters student   
+  Audit and Chartered Accounting Masters student - seeking internship  
   24 Boulevard Arago   
   75013 Paris   
   +33 6 84 91 21 17   
@@ -13,14 +13,15 @@ Louis Mathé
 # CAREER OBJECTIVE
 
 Looking to pusue a career in audit, finance or chartered accounting. 
-However my interests are broader than this. I enjoy having an overview of a company and it's way of working and am keen to learn more about all aspects of business and extend my skills.
+However my interests are broader than this. I enjoy having an overview of a company and it's culture and am keen to learn more about all aspects of business strategy and extend my skills.
 
 
 # KEY SKILLS
 
-* Excellent organisational and task prioritisation skills 
+* Excellent organisational, task prioritisation, and problem solving skills 
 * Wide ranging academic and professional experience (finance, controlling, HR, communication)
 * High level of IT particularly excel and financial software
+* Strong numerical and analytical skills.
 
 
 
@@ -66,7 +67,7 @@ ESCEM Tours
 * Preparation DSCG -5 out of 7 modules (advanced diploma in accounting and management – equivalent ACCA)
 * Consolidation, advanced accounting,  mergers,  management control
 * Tax procedure and company law, audit,  IFRS
-* Management control, marketing, communication etc.
+* Marketing, communication, leadership etc.
 
 
 2009-2011   
