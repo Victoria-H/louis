@@ -4,11 +4,11 @@
 
 Louis Mathé
 ===========
-  Audit and Chartered Accounting Masters student 
-  24 Boulevard Arago
-  75013 Paris
-  +33 6 84 91 21 17
-  louis.mathe@student.france-bs.com
+  Audit and Chartered Accounting Masters student   
+  24 Boulevard Arago   
+  75013 Paris   
+  +33 6 84 91 21 17   
+  louis.mathe@student.france-bs.com    
 
 # CAREER OBJECTIVE
 
@@ -18,9 +18,9 @@ However my interests are broader than this. I enjoy having an overview of a comp
 
 # KEY SKILLS
 
-*Excellent organisational and task prioritisation skills 
-*Wide ranging academic and professional experience (finance, controlling, HR, communication)
-*High level of IT particularly excel and financial software
+* Excellent organisational and task prioritisation skills 
+* Wide ranging academic and professional experience (finance, controlling, HR, communication)
+* High level of IT particularly excel and financial software
 
 
 
