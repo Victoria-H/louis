@@ -30,8 +30,10 @@ However my interests are broader than this. I enjoy having an overview of a comp
 05/14-08/14   
 Assistant Auditor   
 JC Armand et Associés à Paris (8ème) – Chartered Accountants 
-* Conducted accounting cycle audit (clients, suppliers, stocks, capital assets, borrowing, debt, equity, personnel) through analytical review, bank confirmation,  cut-off*Accounts revision and recording. Required strong numerical skills.
+* Conducted accounting cycle audit (clients, suppliers, stocks, capital assets, borrowing, debt, equity, personnel) through analytical review, bank confirmation,  cut-off
+* Accounts revision and recording. 
 * One-off assignment : drew up summary statement for a works council (turnover 2013 Comptes France 270M€ et 360M€ consolidated) 
+* Required strong numerical skills.
 * Developed autonomy and independence, attention to detail, and analytical approach. 
 
 
