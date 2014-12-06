@@ -4,7 +4,7 @@
 
 Louis Mathé
 ===========
-  Audit and Chartered Accounting Masters student - seeking internship in finance related field.
+  Audit and Chartered Accounting Masters student - seeking internship in finance related field.      
   24 Boulevard Arago   
   75013 Paris   
   +33 6 84 91 21 17   
