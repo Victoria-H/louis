@@ -71,7 +71,7 @@ DR Expertises Châtellerault – Chartered Accountants
 Master in Management Specialisation in Audit and Accounting                  
 ESCEM Tours   
 * Preparation DSCG -5 out of 7 modules (advanced diploma in accounting and management – equivalent ACCA)
-* Consolidation, advanced accounting,  mergers and aquisitions,  management control
+* Consolidation, advanced accounting,  mergers and acquisitions,  management control
 * Tax procedure and company law, audit,  IFRS
 * Marketing, communication, HR, leadership, negotiation etc.
 
@@ -83,7 +83,7 @@ IUT  Poitiers
 
 
 2009  
-BAC ES Equivalent to A levels/High School Diploma in Ecomomics and Mathematics 
+BAC ES Equivalent to A levels/High School Diploma in Economics and Mathematics 
 
 
 
