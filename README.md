@@ -87,7 +87,7 @@ BAC ES Equivalent to A levels/High School Diploma in Ecomomics and Mathematics
 
 # OTHER SKILLS, ACCOMPLISHMENTS, LEADERSHIP
 
-IT SKILLS
+IT Skills
 =========
 Advanced knowledge of  Microsoft Office Suite     
 Word, Excel (some VBA), Access, PowerPoint    
@@ -95,12 +95,12 @@ Word, Excel (some VBA), Access, PowerPoint
 Accounting software
 CEGID, ADVENTI , CIEL, SAGE  Acquisition, COALA, ScanBank/Fact  
 
-LANGUAGES
+Languages
 =========
 Native French speaker
 English : fully operational professional competence
 
-CHALLENGING EXPERIENCES
+Challenging experiences
 =======================
 The Masters Program at ESCEM demands high standards, and entry to the Audit Specialisation was very competitive, and demanded strong academic results and organisational skills to achieve the good results I obtained in the entrance exams. 
 
@@ -110,7 +110,7 @@ My last internship was challenging as I had to acquire a large number of new ski
 
 Taking on volunteering activities (student union, volunteer accountant) in parallel with my studies meant that I had to manage my time and set priorities very carefully. I enjoyed contributing to the extra-curricula activities of the school, particularly performing with my group at the school concerts.
 
-HOBBIES AND OTHER EXPERIENCE
+Hobbies and other experience
 ============================
 Active member of the student union    
 Volunteer Accountant for student organisation, Poitiers 2010    
